@@ -9,7 +9,7 @@ learns as you play.
 
 ## Contact
 
-Email **alex@recrd.com** and I'll get back to you. If you're reporting a
+Email **alex_frazer_485@hotmail.com** and I'll get back to you. If you're reporting a
 problem, it helps to include your device, the iOS/tvOS/macOS version, and what
 you were doing when it happened.
 
