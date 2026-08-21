@@ -78,4 +78,4 @@ the date above will be updated.
 
 Questions about this policy or the app:
 
-**alex@recrd.com**
+**alex_frazer_485@hotmail.com**
