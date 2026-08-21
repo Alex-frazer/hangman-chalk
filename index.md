@@ -19,4 +19,4 @@ Available for iPhone, iPad, Apple TV and Mac.
 - [Support](support)
 - [Privacy Policy](privacy-policy)
 
-Questions: **alex@recrd.com**
+Questions: **alex_frazer_485@hotmail.com**
